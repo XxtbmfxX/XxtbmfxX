@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @XxtbmfxX
-- 👀 I’m interested in learn cool suff so i can work anywhere 
-- 🌱 I’m currently practicing my frontedn skills
-- 📫 How to reach me aatn1321@gmail.com 😉
+Hi ^_^
+I was training 🦾
+Now I'm provably learning or building an App 👌
+later I'll be drawing or playing the guitar (⓿_⓿)
